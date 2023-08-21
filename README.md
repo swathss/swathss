@@ -11,7 +11,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/swathss/swathss](https://github.com/swathss/swathss)
 
-- 📫 How to reach me **emailmeatswathii!gmail.com**
+- 📫 How to reach me **emailmeatswathii@gmail.com**
 
 - ⚡ Fun fact **I think I'm funny, and always have a positive energiee😎**
 
